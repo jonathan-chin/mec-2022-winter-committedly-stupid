@@ -1,3 +1,7 @@
 # 1. Make me laugh in just 4 words
 
-I can't, not funny
+Lets OVERTHROW Ju-an's tyranny
+
+# 2. I'm thinking of adopting 3 more cats. Change my mind.
+
+That'd make what? 20 cats total?
